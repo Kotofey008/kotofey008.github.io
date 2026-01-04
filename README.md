@@ -1,2 +1,2 @@
-# kotofey008.github.io
-В Ы П Р Я М И С Ь 🫵(ಠ⁠_ಠ⁠)
+Status 451</br>
+Unavailable For Legal Reasons
